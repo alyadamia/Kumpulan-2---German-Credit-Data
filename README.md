@@ -1,0 +1,1 @@
+# Kumpulan-2---German-Credit-Data
